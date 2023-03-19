@@ -1,0 +1,1 @@
+# This repo contains what I learned during my S2-B2 in Indonesian language lessons
