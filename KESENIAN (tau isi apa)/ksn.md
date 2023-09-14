@@ -1,1 +1,0 @@
-# Repo ini berisikan apa yang saya pelajari selama S2-B2 dalam pelajaran Seni dan Budaya
